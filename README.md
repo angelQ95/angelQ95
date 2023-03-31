@@ -6,6 +6,8 @@ When I'm not debugging mysterious code I didn't write, I'm generally learning so
 
 Check out my portfolio here or shoot me an email to angelq1995@163.com if you want to chat
 
+不知苦楚，不信神佛。
+
 <!--
 **angelQ95/angelQ95** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
