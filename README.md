@@ -6,7 +6,7 @@ When I'm not debugging mysterious code I didn't write, I'm generally learning so
 
 I am happy to make plans for anything, and I have a strong desire to manage time nodes.
 
-Check out my portfolio here or shoot me with tgosxopmu@mirmglobal.cc if you want to chat.
+Check out my portfolio here or shoot me with qiuanqi27@gmail.com if you want to chat.
 
 未知苦楚，不信神佛。
 
