@@ -8,7 +8,7 @@ I am happy to make plans for anything, and I have a strong desire to manage time
 
 Check out my portfolio here or shoot me with qiuanqi27@gmail.com if you want to chat.
 
-未知苦楚，，不信神佛🌱
+未知苦楚，不信神佛🌱
 
 <!--
 **angelQ95/angelQ95** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
